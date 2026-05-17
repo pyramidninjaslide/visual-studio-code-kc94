@@ -1,4 +1,4 @@
-# 
+# best JetBrains IntelliJ IDEA para PC scripts es el mejor JetBrains IntelliJ IDEA para PC scripts con herramientas de depuración y vista previa de Markdown. Seguro, confiable y
 
 
 
